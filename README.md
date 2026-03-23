@@ -2,7 +2,7 @@
 
 > **Posudek k LinkedIn příspěvku:** [Pavel Brožek — „Za 8 minut jsem měl roztříděno 642 kandidátů"](https://www.linkedin.com/posts/brozekp_za-8-minut-jsem-m%C4%9Bl-rozt%C5%99%C3%ADd%C4%9Bno-642-kandid%C3%A1t%C5%AF-activity-7441803166980927488-X-ig)
 >
-> **Autor posudku:** Jaroslav Urbánek · TECHNOMATON
+> **Autor posudku:** Jaroslav Urbánek · TECHNOMATON, AI
 >
 > **Datum:** 23. března 2026
 
